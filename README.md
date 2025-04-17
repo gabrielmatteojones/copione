@@ -1,12 +1,5 @@
-Capisco, desideri un copione più breve e incisivo, adatto a un video di circa 6 minuti, mantenendo uno stile ironico e iconico. Ecco una proposta di copione con indicazioni per le clip da inserire, inclusi i minutaggi:
-
----
-
 ## 🎬 **Titolo del video:**  
 **"Sono del 2008 e sto scoprendo i film anni 2000: UN MONDO A PARTE"**
-
----
-
 ## 📝 **Copione con indicazioni per le clip**
 
 ### **Introduzione**
@@ -94,13 +87,7 @@ Capisco, desideri un copione più breve e incisivo, adatto a un video di circa 6
 **Clip da inserire:**  
 - **Scena di Blair che entra a scuola con stile.**
 
----
-
 🎬 **FINE – testo sullo schermo:**  
 ✨ Tu che film/serie anni 2000 ami di più?  
 📼 Consigliatemene altri nei commenti!  
 👀 Magari ci faccio un altro video...
-
----
-
-Spero che questo copione ti piaccia! Se hai bisogno di ulteriori modifiche o aggiustamenti, fammi sapere! 
